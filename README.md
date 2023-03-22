@@ -1,2 +1,0 @@
-# LabIA_Prjct
-
